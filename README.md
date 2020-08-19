@@ -32,7 +32,7 @@ The analysis of the election shows that:
   
   The winner of the election was
   
-  -Dian Degette with 73.8% of the vote and 272,892 total votes
+  -Diane Degette with 73.8% of the vote and 272,892 total votes
   
  ##Challenge Overview
  
